@@ -1,4 +1,4 @@
 Bored of writing email for each job description so made this.
 
-![Screenshot (344)](https://github.com/user-attachments/assets/4107ada9-07da-413c-89be-71157a39b73e)
-![Screenshot (343)](https://github.com/user-attachments/assets/d0484c6b-0116-446b-a52c-fed574046391)
+![Screenshot (343)](https://github.com/user-attachments/assets/4804bb04-9a27-401b-bb1c-caaf45537161)
+![Screenshot (344)](https://github.com/user-attachments/assets/2c419890-af13-432c-bcd0-d996bf124552)
